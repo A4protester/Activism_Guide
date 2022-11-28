@@ -14,8 +14,8 @@
 
 ---
                                         
-
-    [《如何应对被国安喝茶?》](https://project-gutenberg.github.io/Pincong/post/7e7abfba464bd251d28ae31cee522771/)
+      
+[《如何应对被国安喝茶?》](https://project-gutenberg.github.io/Pincong/post/7e7abfba464bd251d28ae31cee522771/)
 
 这篇文章描述的内容和我过去被喝茶的经历很相似，为了防止他们日后清算，希望会有帮助。  
 
