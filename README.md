@@ -24,7 +24,7 @@
 这是香港人在反送中期间写的示威简易指南。
 
 
-[《如果您的团队陷在被监视和被渗透的恐慌中，只是因为您缺少了一件东西 — 什么是安全文化》]https://iyouport.substack.com/p/as60-
+[《如果您的团队陷在被监视和被渗透的恐慌中，只是因为您缺少了一件东西 — 什么是安全文化》](https://iyouport.substack.com/p/as60-)
 
 [《如果您的手机被盗或被警察抢走…》](https://iyouport.substack.com/p/a5e)
 
