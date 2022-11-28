@@ -12,7 +12,8 @@
 
 ##### A:为的是以后可能更大的抗争。
 
-***
+---
+                                        
 
     [《如何应对被国安喝茶?》](https://project-gutenberg.github.io/Pincong/post/7e7abfba464bd251d28ae31cee522771/)
 
